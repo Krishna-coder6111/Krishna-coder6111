@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-👋 Hi, I'm Krishna Singh! 🌟
+👋 I'm Krishna Singh! 🌟
 
 🎓 I'm a Computer Science and Mathematics student at Northeastern University, passionate about leveraging technology to make a difference in the world. 🚀
 
